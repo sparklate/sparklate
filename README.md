@@ -1,2 +1,1 @@
-ok this wip ok?
-![blank](https://files.catbox.moe/hsjwus.png)
+omg i hate this IM GOING TO DO THIS LATER
